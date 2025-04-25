@@ -1,2 +1,0 @@
-"#tallergit" 
-Nuevamente digo, tallergit
